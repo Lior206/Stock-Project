@@ -1,1 +1,0 @@
-"In this life you are either 1 or you are 0"
